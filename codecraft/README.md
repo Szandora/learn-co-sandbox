@@ -1,0 +1,1 @@
+Codecraft is awesome! Be amazed dammit!!!
